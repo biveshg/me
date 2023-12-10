@@ -19,6 +19,10 @@
 
 ![image](https://github.com/rrosetoy/me/assets/120287803/9e38e5d1-f35b-43ec-9ca5-4460abc52b34) ![image](https://github.com/rrosetoy/me/assets/120287803/cbcaed71-6e12-45e7-8e11-15c68eeafaf1) 
 ![image](https://github.com/rrosetoy/me/assets/120287803/f4ef34b6-54f2-4876-91ac-e6c4e638feb6) ![image](https://github.com/rrosetoy/me/assets/120287803/4b63784b-64fd-4525-8b21-0c1f9bafe981)
+![image](https://github.com/rrosetoy/me/assets/120287803/0950150f-f1f9-4c17-81b0-997e1cd23145) 
+
+![image](https://github.com/rrosetoy/me/assets/120287803/0de2ca3e-839d-4bca-83e1-161df5257448)
+
 
 
 
