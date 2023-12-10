@@ -18,6 +18,7 @@
 
 
 ![image](https://github.com/rrosetoy/me/assets/120287803/9e38e5d1-f35b-43ec-9ca5-4460abc52b34) ![image](https://github.com/rrosetoy/me/assets/120287803/cbcaed71-6e12-45e7-8e11-15c68eeafaf1)
+![image](https://github.com/rrosetoy/me/assets/120287803/f4ef34b6-54f2-4876-91ac-e6c4e638feb6)
 
 
 
