@@ -13,10 +13,10 @@
 ![image](https://github.com/rrosetoy/me/assets/120287803/f4f62fac-1b91-4253-ac5b-e93458e3392d) ![image](https://github.com/rrosetoy/me/assets/120287803/db4082c3-73a0-4832-b65a-4599aac853f1)
 ![image](https://github.com/rrosetoy/me/assets/120287803/46491956-7985-4555-9b5a-7726922e5b6c) ![image](https://github.com/rrosetoy/me/assets/120287803/2ecacd6f-dfa4-4899-be85-0787243722b5)
 ![image](https://github.com/rrosetoy/me/assets/120287803/d75497a0-ffe2-4137-a319-89028d357478) ![image](https://github.com/rrosetoy/me/assets/120287803/82df0b49-d6b3-45c8-86c0-98aa2dcdedcc)
-
-
 ![image](https://github.com/rrosetoy/me/assets/120287803/05831cba-a5bc-4caa-ab9c-a0dbb8427268) ![image](https://github.com/rrosetoy/me/assets/120287803/5a9f952b-2307-4589-a56e-3b77ee4c4396) 
 ![image](https://github.com/rrosetoy/me/assets/120287803/14126792-bd63-4e2f-8cc8-4ffa9cddc8e6) ![image](https://github.com/rrosetoy/me/assets/120287803/9a550983-6eb2-43c4-a5f6-ef0a0e4ebc43)
+
+
 ![image](https://github.com/rrosetoy/me/assets/120287803/9e38e5d1-f35b-43ec-9ca5-4460abc52b34) ![image](https://github.com/rrosetoy/me/assets/120287803/cbcaed71-6e12-45e7-8e11-15c68eeafaf1)
 
 
